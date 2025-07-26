@@ -31,4 +31,4 @@
 
 ## 📫 Contacto
 - Email: calderon.bastian.7@outlook.com
-- LinkedIn: [tu perfil si tienes]
+- LinkedIn: En Curso
